@@ -1,1 +1,1 @@
-www.capatornado.com
+www.capatornado.xyz
